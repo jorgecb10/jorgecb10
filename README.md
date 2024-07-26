@@ -1,4 +1,5 @@
-![MasterHead](https://www.freepik.es/vector-premium/codificacion-programacion-desarrollo-web-codigo-computadora-banner-futurista-computadora-portatil_18719376.htm)
+![MasterHead](![b0fcae26f50e59192f82da61589906b1](https://github.com/user-attachments/assets/11603135-c356-43f0-b43e-e3e339d5c8fd)
+)
 
 ## Hi, I am Jorge 👋
 
