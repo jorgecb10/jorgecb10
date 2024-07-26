@@ -1,6 +1,4 @@
 ![MasterHead](https://i.pinimg.com/564x/b0/fc/ae/b0fcae26f50e59192f82da61589906b1.jpg)
-)
-)
 
 ## Hi, I am Jorge 👋
 
