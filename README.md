@@ -1,7 +1,7 @@
 ## Hi, I am Jorge 👋
 
 # 💫 About Me:
-💻 Computer engineering student.<br>👨‍💻 Web developer.<br>🌱 I am currently learning the tools needed<br>      to develop quality applications and web pages.<br>🤝 I like team work.<br>📚 I am open to learning new things.
+💻 Computer engineering student.<br>👨‍💻 Web developer.<br>🌱 I am currently learning the tools needed<br>      to develop quality applications and web pages.<br>🤝 I like team work.<br>📚 I like to learn new things to improve my productivity.
 
 
 ## 🌐 Socials:
