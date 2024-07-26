@@ -1,4 +1,5 @@
-![MasterHead](![b0fcae26f50e59192f82da61589906b1](https://github.com/user-attachments/assets/11603135-c356-43f0-b43e-e3e339d5c8fd)
+![MasterHead](https://i.pinimg.com/564x/b0/fc/ae/b0fcae26f50e59192f82da61589906b1.jpg)
+)
 )
 
 ## Hi, I am Jorge 👋
